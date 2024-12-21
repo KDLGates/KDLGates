@@ -1,1 +1,1 @@
-Lifelong technologist and computation enthusiast. Lover of software development and automation, knows the word transhumanism but can't define it without a crayon. On US Eastern time. Please feel free to reach out!
+On US Eastern time. Please feel free to reach out!
